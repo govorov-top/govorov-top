@@ -10,7 +10,7 @@ A little bit about myself 😊
 
 ✅ Can't do without sports: soccer, basketball, morning runs (5 km), home training 💪
 
-✅ Studying English to get a job and move to Australia 🎉
+✅ Studying English so I can get a job and understand almost the whole world 🎉
 
 ✅ Developing in my field: reading books, taking courses, developing pet projects and consulting with a mentor 👨‍💻
 
