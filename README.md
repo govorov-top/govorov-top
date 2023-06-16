@@ -2,7 +2,7 @@
 
 A little bit about myself: 😊
 
-✅ My name is Roma, I am 27 years old.
+✅ My name is Roma, I am 27 years old
 ✅ In my free time I like to travel and explore new places ✈️
 ✅ I love summer, sea/ocean, night walks, bars, swimming and dinners on verandahs 😂
 ✅ Can't do without sports: soccer, basketball, morning runs (5 km), home training 💪
