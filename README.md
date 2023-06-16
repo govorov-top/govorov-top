@@ -2,7 +2,7 @@
 
 A little bit about myself: 😊
 
-✅ My name is Roma, I am 27 years old
+✅ My name is Roma, I am 27 years old 🙋‍♂️
 
 ✅ In my free time I like to travel and explore new places ✈️
 
