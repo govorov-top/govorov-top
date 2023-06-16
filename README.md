@@ -3,10 +3,15 @@
 A little bit about myself: 😊
 
 ✅ My name is Roma, I am 27 years old
+
 ✅ In my free time I like to travel and explore new places ✈️
+
 ✅ I love summer, sea/ocean, night walks, bars, swimming and dinners on verandahs 😂
+
 ✅ Can't do without sports: soccer, basketball, morning runs (5 km), home training 💪
+
 ✅ Studying English so I can get a job and understand almost the whole world 🎉
+
 ✅ Developing in my field: reading books, taking courses, developing pet projects and waconsulting with a mentor 👨‍💻
 
 Briefly about my experience: 💫
