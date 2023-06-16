@@ -1,6 +1,6 @@
 # Hi all! 👋
 
-A little bit about myself: 😊
+**A little bit about myself: 😊**
 
 ✅ My name is Roma, I am 27 years old 🙋‍♂️
 
@@ -14,7 +14,7 @@ A little bit about myself: 😊
 
 ✅ Developing in my field: reading books, taking courses, developing pet projects and waconsulting with a mentor 👨‍💻
 
-Briefly about my experience: 💫
+**Briefly about my experience: 💫**
 
 I started in programming in technical school. Now I love my job as I enjoy creating new products that help people in their daily lives.
 
